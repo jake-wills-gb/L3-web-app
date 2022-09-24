@@ -1,0 +1,1 @@
+Candidature supprimée
